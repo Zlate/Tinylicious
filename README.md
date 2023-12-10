@@ -1,5 +1,4 @@
-Like any other major premium icon library, it‘s expected and fair to offer a portion of it for free. That‘s exactly what I did with Tinylicious.
-https://www.pixelbazaar.com/goodie/tinylicious-icons
+Like any other major premium icon library, it‘s expected and fair to offer a portion of it for free. That‘s exactly what I did with Tinylicious - pixelbazaar.com/goodie/tinylicious-icons
 
 This free pack of Tinylicious consists of handpicked icons from all 32 categories that the premium library contains.
 
